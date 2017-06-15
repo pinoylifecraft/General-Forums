@@ -47,5 +47,4 @@ Pinoy LifeCraft is a 100% Philippine Minecraft Server. Starting as a Minecraft P
 
 • 👌🏻Trading
 
-• 
-
+• and more...
